@@ -1,2 +1,2 @@
 # Licensing
-Tired of being yelled at by lawyers with their wall of upper-case text?  Try our licensing on for size.
+Tired of being yelled at by walls of upper-case legal text?  Try our licensing on for size.
